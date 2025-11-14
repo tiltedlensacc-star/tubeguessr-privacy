@@ -68,7 +68,7 @@ Depending on your location, you may have certain rights regarding your data:
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-**Email**: [Your email address here]
+**Email**: milesbennett90@yahoo.co.uk
 
 ## GDPR Compliance (European Users)
 
